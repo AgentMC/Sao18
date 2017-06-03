@@ -1,5 +1,5 @@
 # Sao 18 Translation
-## Contains English and Russian translation of Sword Arts Online, volume 18 (Alicization :: Lasting)
+## Contains English and Russian translation of Sword Art Online, volume 18 (Alicization :: Lasting)
 ## Содержит английский и русский перевод Sword Art Online том 18 (Завершение Алисизации) 
 
 Warning: I don't know Japanese (only Chinese a little), so translation is done by cleaning up scans, sending them to OCR, then checking the recognized text, sending it to Google Translate. Only in certain cases I manually fix Google Translate issues. Feel free to enhance English if you wish (accepting pull requests). It is not my goal to have complete and precise English translation here.
