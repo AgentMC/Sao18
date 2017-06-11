@@ -13,4 +13,4 @@ Warning: I don't know Japanese (only Chinese a little), so translation is done b
 
 - [Глава 21, Часть 6](Translate/Ru/21-06.md)
 - [Глава 21, Часть 7](Translate/Ru/21-07.md)
-- [Глава 21, Часть 8](Translate/Ru/21-08.md) (50%)
+- [Глава 21, Часть 8](Translate/Ru/21-08.md)
