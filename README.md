@@ -4,7 +4,7 @@
 
 Warning: I don't know Japanese (only Chinese a little), so translation is done by cleaning up scans, sending them to OCR, then checking the recognized text, sending it to Google Translate. Only in certain cases I manually fix Google Translate issues. Feel free to enhance English if you wish (accepting pull requests). It is not my goal to have complete and precise English translation here.
 
-Overall progress: 72%, estimated finish date 11th July 2017.
+Overall progress: 74%, estimated finish date 11th July 2017.
 
 - [Chapter 21 (continued), Part 6](Translate/En/21-06.md)
 - [Chapter 21 (continued), Part 7](Translate/En/21-07.md)
@@ -17,7 +17,8 @@ Overall progress: 72%, estimated finish date 11th July 2017.
 - [Epilogue, Part 1](Translate/En/EP-01.md)
 - [Epilogue, Part 2](Translate/En/EP-02.md)
 - [Epilogue, Part 3](Translate/En/EP-03.md)
-- [Epilogue, Part 4](Translate/En/EP-04.md) (88%)
+- [Epilogue, Part 4](Translate/En/EP-04.md)
+- [Epilogue, Part 5](Translate/En/EP-05.md) (80%) 
 
 Внимание: я на японском не говорю (только немного на китайском), так что перевод делается путём очистки сканов, пропускания их через программу ОРС, затем перепроверки распознанного и отсылки в Гугл Переводчик. С получившегося английского на русский уже перевожу руками. Если я где-то налажал или вы знаете точный перевод (я оцениваю русский перевод как 75% соответствия оригинал) - то пожалуйста кидайте пулреквесты.
 
