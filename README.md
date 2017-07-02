@@ -30,4 +30,4 @@ Overall progress: 78%, estimated finish date 12th July 2017.
 - [Глава 21 (продолжение), Часть 7](Translate/Ru/21-07.md)
 - [Глава 21 (продолжение), Часть 8](Translate/Ru/21-08.md)
 - [Глава 22, Часть 1](Translate/Ru/22-01.md)
-<!-- - [Глава 22, Часть 2](Translate/Ru/22-02.md) (ХХ%)-->
+- [Глава 22, Часть 2](Translate/Ru/22-02.md) (15%)
