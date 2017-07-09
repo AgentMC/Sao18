@@ -180,5 +180,257 @@ Breathe in heavily, dazzle with a smile.
 
 "Then, let's fight together till the end ... ... Re-turn, afterwards full attack with the main gun, that's fine, Laura"
 
-『……roger that』
+『……Roger that』
+
+The finishing communication, as usual, was only a single blunt word.
+
+With a smile, Suteica slowly pulled the control stick and caused the damaged beloved dragon to turn again by one hundred and eighty degrees once again. A huge cosmic beast approaching is fully displayed on the main image board. There are eight attack munitions already stored in the enormous tentacles wandering around.
+
+Oh...ooooooooo.......
+
+Abyssal • Horror roared. Or maybe it laughed.
+
+_At least, I will be rewarded for death. A little longer will pass before it will hit this route next time._
+
+Prepared, Suteica pushed the red button on the control lever halfway.
+
+The main gun equipped on the tip of the machine dragon opened a chisel. Originally, it generates the predisposition of the most effective attribute here, but against thin substance of Abyssal • Horror, even shots of anti-attribute can not deal any serious damage.
+
+If so, casting the maneuvering sacred art, she was thinking that freezing attack would do best.
+
+The dragon's beak shines clear blue.
+
+When she glanced next to her, red light is leaking from the main gun of the second aircraft. It seems that Lauranei has chosen a thermal attack.
+
+The cosmic animal approaching already in just a thousand mels, spread eight tentacles ready for attack.
+
+Suteica breathed in a lot and tried to shout a shooting command.
+
+However——.
+
+『Wait ... ... Wait, Sutey! That is ... ...!』
+
+Lauranei's startled voice passed through the right ear.
+
+She thought, _what ever ... does she_, —— that moment.
+
+Suteica also saw it.
+
+A star comes down.
+
+From the straight up direction of the main image board, one light that shines white comes close at a tremendous speed. She thought for a moment, if it could be a machine dragon!? But immediately deny. By the size, it is too small. Under 2 mel, only the size of a human being ......
+
+Well.
+
+That's right.
+
+What looked like a star was the brightness of the light protective barrier in a spherical shape. Inside it is clearly visible the black shadow with the shape of a person.
+
+The shining stopped about two hundred mels ahead of the two machine dragons.
+
+It was almost simultaneous that Abyssal • Horror released eight light bullets with a huge roar. Before even get surprised with meeting a fresh-and-blood living human being in cryogenic outer space, Suteica cried.
+
+"What are you doing! Run away quickly!"
+
+But the unknown wouldn’t move.
+
+While swinging the hem of a long coat, he stood still at one point in the space with his arms folded.
+
+Such thin protective walls, against the attack ball of Abyssal • Horror is not as good as thin paper. Suteica visually imagined that as soon as one of the attack bullets that roared and pulsed, touched human, blood be splat and meat get dispersed.
+
+"Run away !!"
+
+『Flee it!!』
+
+Simultaneously with her, Lauranei screamed as well.
+
+Eight blue violet light bullets, one of which seems to be about 3 mel in diameter, fly along with a metal roaring. It stopped at void as if it crashed into an invisible wall, and all bounced back in random directions. The universe trembled.
+
+A myriad of stars reflected on both eyes of Suteica spread apart and made a ripple like the surface of the water and shook. Immediately afterwards, the shock-waves that arrived shook the bulk of the dragon. 
+
+Suteica who lost the word realized that a small instrument on the right end of the device board was able to jump to the top end in an instant.
+
+"Lie ... .... Ca ... ... It can’t be..."
+
+Suteica never saw that instruments called "psychometer", even about 20% of it’s max. 
+
+In the ear, Lauranei's fearful voice echoes.
+
+『...... I can not believe it ...... Such a strength feeling... .... It’s like the entire universe is shaking...』
+
+But there is no doubt about the facts before you.
+
+Only the fact that a small living human being reflected the cosmic beast's attack without using a predisposing barrier only with his incarnation — the secret mystery technique of the ancient knights.
+
+Oh ... ... Oooo ooooooooooo—— ... ....
+
+In the distance, Abyssal • Horror shrugs.
+
+_Is it anger or frightening?  
+Did it realize that remote attacks by dark bullets did not work?_ 
+
+The cosmic beast started rushing while throwing countless tentacles forward.
+
+The confronting small figure turned the two arms that were spread out to the back, and produced two long swords equipped there.
+
+"No way ... ... Is he about to fight with a sword!?"
+
+She lent forward and poked her hands on the image board.
+
+The full length of Abyssal • Horror exceeds 200 mel. Moreover, the body is a collection of entities without substance.
+
+It is not an opponent who can manage with a metal blade with a length less than 1 Mel.
+
+However, the mysterious swordsmen pointed white sword in the left hand with no further action exactly to the big beast.
+
+He shouted.
+
+Even through the empty outer space and the thick armor of the dragon, the voice of the swordsman sounded elegantly in the ears of Suteica.
+
+"Release • Recollection!!"
+
+An intense white light burned the main image board.
+
+At the center of the image that recovered soon, it was seen from the swordsman's blade that some pale ray of light rushed into the Abyssal • Horror.
+
+Though compared with the massive of the cosmic beast, it was thin like a thread, the rushing speed of the entwined beast pierced by it is slowed down and weakened. Twelve tentacles freely wandering also rapidly rigidify. Just as if it froze.
+
+_However, such a thing is impossible. Abyssal • Horror is a creature adapted to the space which is a cryogenic environment. Such as cold air which is even lower than the temperature of outer space can not be produced._
+
+A whispering voice of Lauranei echoed from the ear blew away the stunk of Suteica.
+
+『That is ... ... That technique is nothing else than "Complete Armament Control"... .... No, even "Memory Liberation Technique"... ...?』
+
+"Err ... ... such a thing, it should be used only for the top ranking machine!"
+
+『But ... that move, that's definitely...』
+
+An outrageous roar of a cosmic beast that echoed three times broke out of a cut call.
+
+Oots ...... Oooooonnnnnnn!!
+
+Suddenly the caught body trembled and three new tentacles emerged. They become jet black spears and attack the mysterious swordsman.
+
+However, the swordsman in a calm but dazzling movement, swung another sword, this time in the right hand.
+
+And shouted again.
+
+"Release • Recollection!!"
+
+It was deeper, heavier, more dense darkness than the cosmic tentacles.
+
+The tremendously huge dark blade perhaps exceeding 50 mel in length hit three tentacles.
+
+At the moment both sides contacted, shock waves were generated that seemed to cause the space to distort again, and shaken the machine dragon. The blue-violet electric light crawls through the void, letting the image board dazzle.
+
+Already, Suteica could not speak because of surprise.
+
+_To activate secret mystery technique which should be used only for the seven highest-ranking matching machines twice at the same time? To take Abyssal • Horror's full power attack, to which Destroyer Dragon's crew can not compete against, by just one person?  
+I can not believe that such swordsmen exist, even among Centoria's founders._
+
+But——.
+
+The truly amazing sight was waiting ahead.
+
+『Sutey!! One... ... One more person, a swordswoman!』
+
+When she hurriedly adverted the gaze, she saw a new human figure coming down from the same direction as the mysterious two-sword fighter appeared.
+
+That one is even more petite. You can see the long hair and skirt swaying through the light barrier. To the right, rarely delicate rapier.
+
+The female swordsman keeps the right hand all the way.
+
+She swung downward with supple movement.
+
+Suteica saw rainbow-colored aura appear in straight line in the jet-black universe and beat up beautifully. At the same time, it sounded like a mysterious choir of countless singers singing.
+
+La——.
+
+The needle of psychometric gauge was shivering at the upper end.
+
+The stars.
+
+Large number of huge meteorites wrapped with flame emerges from nowhere, crossing overhead.
+
+Asteroids on the route connecting Cardinal and Admina must have been destroyed no less than a decade ago.
+
+However, the impossible weight feeling enough to destroy the entire dragon is within her vision.
+
+Noticing the huge rocks rushing towards it, Abyssal Horror tried to catch it.
+
+Newly created two tentacles and sprinkle as if they were to catch a star.
+
+The collision was silent.
+
+The tip of the burning meteorite instantly desolates the arms of the cosmic beast.
+
+Easy subduction in the center of the giant.
+
+It crushed the dark agglutinating beast with a blow.
+
+Oooooooo~o~o~o~o~o~——.............
+
+The sharp screams of the supernatural creature overlapped with the explosive sound of the meteorite and resonated into the universe. The great release of resources from pure white through crimson to purple burned hard the eye of Suteica.
+
+"... ... ... you defeated ... ... ... ... that monster ... ...?"
+
+She whispered in low voice.
+
+But——.
+
+『Ah ... ... still not ... ... yet!』
+
+A second pilot, who was just a little closer than Suteica, was quick to notice the phenomenon. The fragments of Abyssal • Horror, which she thought were all burned up by explosion, scattered in pieces, came together unexpectedly.
+
+The chunk of darkness, just several tens of cens, which is too miniscule compared with the original bulky substance, escapes while irregularly rubbing like a flock of flies.
+
+According to the records, Star King once also beat the beast so far.
+
+However, it could not eliminate Abyssal • Horror entirely, it escaped as thousands of fragments. The beast which fled to the end of the universe eventually healed the wound and began to hit the route again.
+
+With this, the legend is only repeated.
+
+"No, don’t let it escape! Really destroy them all this time!!"
+
+Unexpectedly, Suteica cried.
+
+However, two swords swordsman and rapier wearer seem to be unable to move at once. It is unclear, maybe it exerted a huge blow to conscience.
+
+The fragments of Abyssal • Horror draw a weird trajectory and flew away.
+
+——When.
+
+A flock of flies was suddenly disarrayed.
+
+It gets scattered and shows irregular movements as if running away.
+
+Suteica took a breath and expanded a viewport by touching the main image board with her fingertips.
+
+She saw the golden light.
+
+It further extended into something that emits pure shine like a small Solus.
+
+"……Human……"
+
+There was a third swordsman.
+
+Hair as if gold was springing. Armor also of gold. Pure white skirt. The eyes that watch the enemy unwavering is the sky blue.
+
+_...... I know._
+
+"I ... ... this swordsman ...... No, a knight, I know her."
+
+Suteica whispered. Instantly, 『Me too』 is returned with Lauranei's voice.
+
+This golden knight was the figure drawn in a huge decorated portrait between the thrones on the fiftieth floor of the Central Cathedral. One of the strongest integrity knights in history, which is said to have disappeared in the middle of battle, raising a number of deeds in an ancient war of different worlds. Certainly, her name is ——.
+
+"... Alice ......-sama ...?"
+
+The knight's right hand moved as if she could hear the voice.
+
+The long sword of the left hip, unsheathed in a smooth gesture.
+
+The blade of bright yellow tinge reflected the light of Solus and got even more terrible brilliance. The fragments of the cosmic beast lose control as if fearful, fleeing and running away.
+
+The knight holds a long sword in both hands in front of the body.
 
