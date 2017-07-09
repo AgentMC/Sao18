@@ -32,23 +32,23 @@ Looking upward, the sight line captures an elaborate relief fitted in the canopy
 
 A sword of black and white, aligned vertically. Surrounding it, flowers of blue roses and yellow-brawn osmanthus. It is the emblem of "Star King" now becoming a legend.
 
-Thirty years have already passed, after the King and the Queen have left the royal palace Central Cathedral on the main star Cardinal (//yes, it’s definitely “star” though they mean “planet” – and use term planet further/).
+Thirty years have already passed, after the King and the Queen have left the royal palace Central Cathedral on the main star Cardina (//yes, it’s definitely “star” though they mean “planet” – and use term planet further/).
 
 Suteica only fourteen years old and Lauranei still only 15 years old, have never been directly audited. Both of them, however, were brought up with plenty of funny stories from their mothers who were also warriors. And the mothers also conveyed many old stories from their mothers as well.
 
 The Shtolienen family and the Arabel family have been serving to the Star King as Konoe mechanics —  It seems that at that time it was called "knight" — during all the period of his reign that spanned two hundred years from the very beginning. (//Complex wordplay here and above. Old and new names both read “kishi”: knight (騎士) and “machine samurai” – mechanic (機士). Based on this, above there is a form “integrity mechanic” (整合機士) pronounced very similar to “integrity knight” (整合騎士). Finally the last form used is “Konoe mechanic” (近衛機士), where Konoe (近衛) is the name of special guards serving, protecting and reporting solely to Emperor in Japan - https://ja.wikipedia.org/wiki/近衛兵, i.e. Kirito’s personal battle mechanics squad. Riding mech dragons. /)
 
-The ancestor before the seventh generation, the knights Teise Shtolienen and Ronnie Arabel protected the Star King before the throne and raised martial arts in the fight against the four emperors who had already exercised power on the Cardinal’s 1st continent. The emperors and great aristocrats who had kept the expertise were abolished their power, and all the people who were oppressed in my territory were released.
+The ancestor before the seventh generation, the knights Teise Shtolienen and Ronnie Arabel protected the Star King before the throne and raised martial arts in the fight against the four emperors who had already exercised power on the Cardina’s 1st continent. The emperors and great aristocrats who had kept the expertise were abolished their power, and all the people who were oppressed in my territory were released.
 
 The king then developed the first machine dragon, surpassing the continent, and exceeding the "end wall of the world" which had risen to the full of the atmosphere.
 
 People patiently negotiate with the ancient God Beasts who had been in the undeveloped land, sometimes winning a one-on-one battle, pioneering fertile settlements one after another, and each tribe got it’s own country to maintain, even goblins and orks, which at that time were called "sub-people" and discriminated.
 
-The eyes of the king who overcame all the stars of Cardinal eventually head towards the infinite universe.
+The eyes of the king who overcame the entireety of the star of Cardina eventually head towards the infinite universe.
 
 Finally, we made the improvement and carried out the departure from the atmosphere.
 
-Found a planet that is a satellite to Cardinal and orbits Solus, named Admina.
+Found a planet that is a satellite to Cardina and orbits Solus, named Admina.
 
 After opening up a regular route by the dragon for navigation of large stars, after building the first immigrant city in the Admina star, he was supposed to be the first star of the underworld first.
 
@@ -94,7 +94,7 @@ In the past, it seems that the King, who was constantly in contact with God Beas
 
 Subsequent observations show that the cosmic animal keeps a constant speed and orbit around the two planets and as a measure of hardship all the machine dragons can avoid contact. It was decided to be permitted the interstellar navigation.
 
-Of course, Suteica and Lauranei have taken off the Cardinal star, picking the date and time that the space beast is flying far behind the Admina stars.
+Of course, Suteica and Lauranei have taken off the Cardina star, picking the date and time that the space beast is flying far behind the Admina stars.
 
 — Nevertheless.
 
@@ -104,7 +104,7 @@ Suteica got dizzy with the trembling hands on the control stick.
 
 However, she immediately rebuilds her mind and shouts at the communication device with a sharp voice.
 
-"Left turn 180 degrees, after withdrawal at full speed! We will retreat to Cardinal airspace!"
+"Left turn 180 degrees, after withdrawal at full speed! We will retreat to Cardina airspace!"
 
 『Roger that!!』
 
@@ -112,7 +112,7 @@ The voice of Lauranei who responds also has a tight resonance.
 
 Suteica pulls the control rod daringly while turning the dragon to the left. The white flame gathers long from the attitude control injection hole, and the body is pressed against the seat with such a weight that it can not breath. The stars of the video board draw an arc and flow to the lower right.
 
-When the turn was over, the main image board was full of the blue shine of the planet Cardinal just taking off just a few dozen minutes ago. It seems that it will arrive if you reach out, it is actually far from hopeless.
+When the turn was over, the main image board was full of the blue shine of the planet Cardina just taking off just a few dozen minutes ago. It seems that it will arrive if you reach out, it is actually far from hopeless.
 
 Maximum acceleration is applied with praying feeling. A permanent hot flow shoots a scream and releases a roar.
 
@@ -162,7 +162,7 @@ Fortunately, when she called out to shout, there was a response with a hoarse vo
 
 『...... hey there, I am safe. But ... this girl can not fly anymore ......』
 
-"... There is no choice but to escape outside the machine, only with the injector of the machine clothes, until Cardinal ..."
+"... There is no choice but to escape outside the machine, only with the injector of the machine clothes, until Cardina ..."
 
 『Impossible ...... No, I do not like that! I can not abandon this child !!』
 
@@ -287,7 +287,7 @@ He shouted.
 
 Even through the empty outer space and the thick armor of the dragon, the voice of the swordsman sounded elegantly in the ears of Suteica.
 
-"Release • Recollection!!"
+『_Release • Recollection!!_』
 
 An intense white light burned the main image board.
 
@@ -315,7 +315,7 @@ However, the swordsman in a calm but dazzling movement, swung another sword, thi
 
 And shouted again.
 
-"Release • Recollection!!"
+『_Release • Recollection!!_』
 
 It was deeper, heavier, more dense darkness than the cosmic tentacles.
 
@@ -352,7 +352,7 @@ The stars.
 
 Large number of huge meteorites wrapped with flame emerges from nowhere, crossing overhead.
 
-Asteroids on the route connecting Cardinal and Admina must have been destroyed no less than a decade ago.
+Asteroids on the route connecting Cardina and Admina must have been destroyed no less than a decade ago.
 
 However, the impossible weight feeling enough to destroy the entire dragon is within her vision.
 
@@ -368,7 +368,7 @@ Easy subduction in the center of the giant.
 
 It crushed the dark agglutinating beast with a blow.
 
-Oooooooo~o~o~o~o~o~——.............
+Oooooooo-o-o-o-o-o——.............
 
 The sharp screams of the supernatural creature overlapped with the explosive sound of the meteorite and resonated into the universe. The great release of resources from pure white through crimson to purple burned hard the eye of Suteica.
 
@@ -433,4 +433,128 @@ The long sword of the left hip, unsheathed in a smooth gesture.
 The blade of bright yellow tinge reflected the light of Solus and got even more terrible brilliance. The fragments of the cosmic beast lose control as if fearful, fleeing and running away.
 
 The knight holds a long sword in both hands in front of the body.
+
+She shouted out with a voice reminiscent of the wind blowing into space. The needle of the psychometer broke out with a small explosion sound.
+
+『_Release • Recollection!!_』
+
+A sword extinguishes a strong flash.
+
+The blade is dissolved! Along with the metal sound, it breaks into countless strips.
+
+The knight moved the handle which remained on the right hand slowly.
+
+The strips spread like a petal, like a petal dancing in the wind, ... ... and void.
+
+It turned into a golden meteor shower and flew at a stretch.
+
+Each one of the small lights penetrates fragments of the escaping cosmic beast with a terrifying precision. The shadow of the shadow of darkness is burned down to golden glow and evaporates.
+
+"............ wow ... ..."
+
+Suteica could only mumble.
+
+Even if you arrange all the dragons of the integrity machinery team and fire all the main guns at a time, this precision and power can not be hoped for.
+
+When the last one of the fragments of Abyssal • Horror, which was the worst fearful Underworld universe beast, was pierced by a golden arrow, an extraordinary scream came unprecedented.
+
+Giiii-ii-i-i-i-i-o-o-o-o-o-o………….
+
+Finally, the cosmic beast has completely disappeared.
+
+Suteica just stunnedly watched the golden meteors gather at the hands of the knight and went back to a single long sword again.
+
+Even if the golden knight is integrity knight Alice of old times, who are the remaining two?
+
+In the video board, the golden knight who paid the sword in the sheath flies through the air and approaches the black sword fighter and the pearl swordsman.
+
+After having briefly exchanged something, three people turned around to watchers together. Their faces cannot be seen. But it’s clear that the three of them have a smile on their mouths.
+
+Two-sword swordsman returned white and black long sword back and shook his right hand lightly.
+
+That moment——.
+
+A huge deep, very deep emotion unknown to her was passed through the inside of Suteica's back.
+
+Hard to breath, enough to be painful.
+
+"Ah ... ... ah ......"
+
+It overlapped with the leaked sigh, and the voice of Lauranei sounded quietly in the ears.
+
+"Sutey. I know. I know that people."
+
+"Yeah, Laura ... I, too, I do."
+
+She nods twice, three times.
+
+It is not stored as knowledge like a portrait between thrones. Not so.
+
+My heart. My fingertips. My soul. They remember.
+
+Unexpectedly, the smell of sweet and savory honey pie tickles her nose.
+
+The refreshing wind blowing across the meadow. The warmth of the sun which calms down.
+
+Distant, slightly echoing laughter.
+
+Suteica was casually putting on an airtight helmet and pulled the handle on the right side of the cockpit.
+
+First, the insulation lets the air to come out. An armor board that protects the dragon's cockpit seats unfolds and the star ocean spreads above the head. The second aircraft also opens the boarding pass in the same way.
+
+Suteica stand up and in about 30 mel from the cockpit saw the three swordsmen who kept their hands waving with her own eyes.
+
+Impossible.
+
+One more person —.
+
+The eyes of autumn leaves of Suteica certainly caught the appearance of the fourth swordsman that appeared to be shaking. A young man standing right after the two-blade swordsman in the black clothing and smiling gently. Its appearance is shiny and it seems to disappear the moment you take your eyes off, swaying like a sunrise.
+
+The young man with flax hair slowly nodded greatly towards Suteica.
+
+Tears flowed from both eyes of Suteica.
+
+Warm drops go down the face and is stopped by the airtight helmet.
+
+Eventually the figure of a young man died away as if melted in the light of Solus which appeared from the shade of Cardina.
+
+At the same time, the young integrity mechanic understood the truth.
+
+This — this very moment is the beginning of a new era as written in the prophecy of the Star King.
+
+They are messengers who emerge from the past and open the doors of the future.
+
+From this time, the world begins to change.
+
+A door of another world opens, the tide of a new era loudly rushes up.
+
+It doesn’t mean the coming of paradise. It is likely that a revolutionary change and a turbulent era that can not be imagined come to the Underworld.
+
+However, there was no fear in Suteica.
+
+Because —.
+
+Because my heart hurts so much.
+
+Because the trembling soul was longing for this encounter.
+
+When she shake down tears with blinking, Suteica looked straight ahead.
+
+While standing up, with her fingertips gently pushed the control stick forward.
+
+The wounded dragon's wings born a faint blue shine.
+
+![Image](/Translate/Img/018_0425.jpg)
+
+Permanent heat element breathes, and a small thrust moves the spacecraft.
+
+She glanced to the Lauranei nearby for a moment and got deep nod in response.
+
+A girl born within the Underworld, the integrity mechanic Suteica Shtolienen moved the dragon slowly.
+
+To the swordsmen who waved their hands to her, to strangers, to knights of the past.
+
+To the door of the next era.
+
+To the future.
 
