@@ -22,3 +22,7 @@ _**Gabriel:** All of your emotions, memories, hearts and souls ... ... now I wil
 _**Yui:** The server indicated by this address, that is.....  
 **Kirito:** Alice. It is that world... that's where the Underworld runs!  
 **Alice:** So ... I can go, yes, I can go back. To that world ... ... to my world......._ 
+
+***
+
+![Image](/Translate/Img/018_00010.jpg)
