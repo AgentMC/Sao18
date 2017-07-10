@@ -25,4 +25,4 @@ _**Yui:** The server indicated by this address, that is.....
 
 ***
 
-![Image](/Translate/Img/018_00010.jpg)
+![Image](/Translate/Img/018_0010.jpg)
