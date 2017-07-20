@@ -36,4 +36,4 @@ Overall progress: done, 09th July 2017.
 - [Глава 21 (продолжение), Часть 8](Translate/Ru/21-08.md)
 - [Глава 22, Часть 1](Translate/Ru/22-01.md)
 - [Глава 22, Часть 2](Translate/Ru/22-02.md)
-- [Глава 23, Часть 1](Translate/Ru/23-01.md) (29%)
+- [Глава 23, Часть 1](Translate/Ru/23-01.md) (33%)
