@@ -43,4 +43,4 @@ Overall progress: done, 09th July 2017.
 - [Эпилог, Часть 1](Translate/Ru/EP-01.md)
 - [Эпилог, Часть 2](Translate/Ru/EP-02.md)
 - [Эпилог, Часть 3](Translate/Ru/EP-03.md)
-- [Эпилог, Часть 4](Translate/Ru/EP-03.md)
+- [Эпилог, Часть 4](Translate/Ru/EP-04.md)
