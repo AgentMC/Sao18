@@ -277,7 +277,7 @@ _Это гнев или испуг?
 
 Она наклонилась вперёд и упёрлась руками в обзорную панель.
 
-Полная длина Эбисал Хоррора превышала 200 мел. кроме того его тело было набором неовеществлённых сущностей.
+Полная длина Эбисал Хоррора превышала 200 мел, кроме того, его тело было набором неовеществлённых сущностей.
 
 Это не тот противник, с которым можно справиться клинком менее одного метра.
 
@@ -291,178 +291,178 @@ _Это гнев или испуг?
 
 Главную обзорную панель залил интенсивный белый свет.
 
-## Продолжение завтра
+В центре изображения, вскоре восстановившегося, было видно, как из клинка в руках мечника вылетел лучи бедного света и устремился к Эбисал Хорору.
 
-At the center of the image that recovered soon, it was seen from the swordsman's blade that some pale ray of light rushed into the Abyssal • Horror.
+По сравнению с массивным космическим зверем он был тонкий как нить, но стоило ему пронзить и окутать тварь, как та сильно замедлилась. Двенадцать щупалец, свободно извивавшихся, тоже внезапно отвердели. Его словно бы заморозило.
 
-Though compared with the massive of the cosmic beast, it was thin like a thread, the rushing speed of the entwined beast pierced by it is slowed down and weakened. Twelve tentacles freely wandering also rapidly rigidify. Just as if it froze.
+_Но это же невозможно. Эбисал Хоррор — это космический зверь, адаптировавшийся к условиям ужасного холода открытого космоса. Воздух холоднее чем температура открытого космоса просто невозможно создать._
 
-_However, such a thing is impossible. Abyssal • Horror is a creature adapted to the space which is a cryogenic environment. Such as cold air which is even lower than the temperature of outer space can not be produced._
+Из ступора Сутейку вывел шёпот Лораней, раздавшийся в ухе.
 
-A whispering voice of Lauranei echoed from the ear blew away the stunk of Suteica.
+『Это...... Эта техника — ничто иное как "полный контроль вооружения"....... Нет, наверное даже "техника высвобождения памяти"......?』
 
-『That is ... ... That technique is nothing else than "Complete Armament Control"... .... No, even "Memory Liberation Technique"... ...?』
+"Эээ...... но её могут использовать только машины высшего ранга!"
 
-"Err ... ... such a thing, it should be used only for the top ranking machine!"
+『Но... это движение, это определённо...』
 
-『But ... that move, that's definitely...』
+Их переговоры были прерваны неистовым рёвом космического зверя, повторившимся трижды.
 
-An outrageous roar of a cosmic beast that echoed three times broke out of a cut call.
+Ооос...... Оооооооооооонннннннннн!!
 
-Oots ...... Oooooonnnnnnn!!
+Внезапно его пойманное тело задрожало и появились три новых щупальца. Они превратились в угольно-чёрные копья и полетели в мечника.
 
-Suddenly the caught body trembled and three new tentacles emerged. They become jet black spears and attack the mysterious swordsman.
+Однако тот спокойным, но блистательным движением, махнул вторым мечом, тем, что был в правой руке.
 
-However, the swordsman in a calm but dazzling movement, swung another sword, this time in the right hand.
+И вновь выкрикнул:
 
-And shouted again.
+『_Релиз Реколлекшн!!_』
 
-『_Release • Recollection!!_』
+Тьма. Более глубокая, тяжёлая, плотная, чем щупальца космической твари.
 
-It was deeper, heavier, more dense darkness than the cosmic tentacles.
+Гигантское чёрное лезвие, пожалуй, превысившее по длине 50 мел, столкнулось с щупальцами.
 
-The tremendously huge dark blade perhaps exceeding 50 mel in length hit three tentacles.
+В тот миг, когда стороны соприкоснулись, искусственного дракона снова тряхнуло ударной волной, казалось, искажающей само окружающее пространство. Пустоту заполнил сине-фиолетовый свет, и обзорная панель потемнела.
 
-At the moment both sides contacted, shock waves were generated that seemed to cause the space to distort again, and shaken the machine dragon. The blue-violet electric light crawls through the void, letting the image board dazzle.
+Сутейка от удивления и слова сказать не могла.
 
-Already, Suteica could not speak because of surprise.
+_Активировать тайную загадочную технику, которую способны использовать лишь семеро высокоранговых механиков целостности, да ещё и два раза одновременно? Отразить полновесную атаку Эбисал Хоррора, с которой не смогла бы совладать и команда дракона-истребителя, и чтобы всё это сделал один человек?  
+Не могу поверить, что такой мечник может существовать, даже среди основателей Центории._
 
-_To activate secret mystery technique which should be used only for the seven highest-ranking matching machines twice at the same time? To take Abyssal • Horror's full power attack, to which Destroyer Dragon's crew can not compete against, by just one person?  
-I can not believe that such swordsmen exist, even among Centoria's founders._
+Однако ——
 
-But——.
+Действительно поразительное зрелище было ещё впереди.
 
-The truly amazing sight was waiting ahead.
+『Сутей!! Ещё...... Ещё одна, мечница!』
 
-『Sutey!! One... ... One more person, a swordswoman!』
+Второпях переведя взгляд, она увидела ещё одну фигуру человека, спускавшуюся из той же области, откуда появился загадочный боец с двумя мечами.
 
-When she hurriedly adverted the gaze, she saw a new human figure coming down from the same direction as the mysterious two-sword fighter appeared.
+Эта была ещё более миниатюрной. Сквозь световой барьер виднелись длинные волосы и развевающаяся юбка. И, на правом боку, изысканная тоненькая рапира.
 
-That one is even more petite. You can see the long hair and skirt swaying through the light barrier. To the right, rarely delicate rapier.
+Женщина-мечник подняла правую руку вертикально вверх.
 
-The female swordsman keeps the right hand all the way.
+И мягким движением махнула вниз.
 
-She swung downward with supple movement.
+Сутейка увидела, как бездонно-чёрную вселенную по прямой линии пронзила прекрасно пульсировавшая радужная аура. В тот же миг, из ниоткуда раздался звук, словно бессчётное количество голосов запели в невидимом хоре.
 
-Suteica saw rainbow-colored aura appear in straight line in the jet-black universe and beat up beautifully. At the same time, it sounded like a mysterious choir of countless singers singing.
+Лааааа ——
 
-La——.
+Стрелка психометра задрожала, упёршись в максимум.
 
-The needle of psychometric gauge was shivering at the upper end.
+Звёзды.
 
-The stars.
+Немалое количество большущих метеоритов, окутанных пламенем, появившись из ниоткуда, пролетели над головой.
 
-Large number of huge meteorites wrapped with flame emerges from nowhere, crossing overhead.
+Все астероиды на маршруте, соединяющем Кардину и Админу были уничтожены не менее десятилетия назад.
 
-Asteroids on the route connecting Cardina and Admina must have been destroyed no less than a decade ago.
+Однако, на её глазах мимо пронеслась громадная масса, достаточная, чтобы уничтожить всего дракона.
 
-However, the impossible weight feeling enough to destroy the entire dragon is within her vision.
+Заметив приближающиеся к нему громадные каменюки, Эбисал Хоррор попытался поймать их.
 
-Noticing the huge rocks rushing towards it, Abyssal Horror tried to catch it.
+Два новосозданных щупальца метнулись вперёд в попытке схватить звёзды.
 
-Newly created two tentacles and sprinkle as if they were to catch a star.
+Столкновение было беззвучным.
 
-The collision was silent.
+Края горящих метеоритов мгновенно растворили лапы космического зверя.
 
-The tip of the burning meteorite instantly desolates the arms of the cosmic beast.
+И легко понеслись дальше, в середину громадины.
 
-Easy subduction in the center of the giant.
-
-It crushed the dark agglutinating beast with a blow.
+С сильным ударом они столкнулись с аморфной тварью.
 
 Oooooooo-o-o-o-o-o——.............
 
-The sharp screams of the supernatural creature overlapped with the explosive sound of the meteorite and resonated into the universe. The great release of resources from pure white through crimson to purple burned hard the eye of Suteica.
+Резкие вскрики сверхъестественного существа наложились на звуки взрыва метеоритов и эхом разнеслись по вселенной. Волны вырвавшихся ресурсов, цветом от чисто белого, через багровый и до пурпурного, обожгли глаза Сутейки.
 
-"... ... ... you defeated ... ... ... ... that monster ... ...?"
+"......... вы победили............ этого монстра......?"
 
-She whispered in low voice.
+— прошептала она низким голосом
 
-But——.
+Но ——
 
-『Ah ... ... still not ... ... yet!』
+『Ах...... всё ещё...... не конец!』
 
-A second pilot, who was just a little closer than Suteica, was quick to notice the phenomenon. The fragments of Abyssal • Horror, which she thought were all burned up by explosion, scattered in pieces, came together unexpectedly.
+Второй пилот, находившаяся немного ближе Сутейки, быстро заметила феномен. Фрагменты Эбисал Хорора, которые, как она думала, были все сожжены взрывом, разрозненные на множество частей, внезапно соединились вместе.
 
-The chunk of darkness, just several tens of cens, which is too miniscule compared with the original bulky substance, escapes while irregularly rubbing like a flock of flies.
+Кусок черноты, всего несколько десятков ценов размером, просто микроскопический по сравнению с оригинальной монструозной субстанцией, удирал, неоднородным скоплением, словно рой мух.
 
-According to the records, Star King once also beat the beast so far.
+Согласно записям, именно до такого состояния Звёздный Король однажды добил космического зверя.
 
-However, it could not eliminate Abyssal • Horror entirely, it escaped as thousands of fragments. The beast which fled to the end of the universe eventually healed the wound and began to hit the route again.
+Однако, он так и не сумел до конца уничтожить Эбисал Хоррор, тот сбежал в виде тысячи фрагментов. Зверь, удравший к краю вселенной, со временем залечил раны и вернулся на старый маршрут.
 
-With this, the legend is only repeated.
+Теперь легенда повторялась снова.
 
-"No, don’t let it escape! Really destroy them all this time!!"
+"Нет, не дай ему уйти! На этот раз взаправду уничтожь его!!"
 
-Unexpectedly, Suteica cried.
+— неожиданно закричала Сутейка.
 
-However, two swords swordsman and rapier wearer seem to be unable to move at once. It is unclear, maybe it exerted a huge blow to conscience.
+Однако, мечник с двумя клинками и владелица рапиры, казалось, не могли немедленно продолжить движение. Было непонятно, возможно, их техника нанесла сильный удар по сознанию.
 
-The fragments of Abyssal • Horror draw a weird trajectory and flew away.
+Остатки Эбисал Хоррора, нарисовав в небе причудливую кривую, удирали прочь.
 
-——When.
+—— И тогда.
 
-A flock of flies was suddenly disarrayed.
+Стая мух внезапно потеряла формацию.
 
-It gets scattered and shows irregular movements as if running away.
+Она рассеялась и бросилась резкими движениями в сторону, словно спасаясь.
 
-Suteica took a breath and expanded a viewport by touching the main image board with her fingertips.
+Сутейка, затаив дыхание, увеличила картинку, прикоснувшись к обзорной панели пальцами.
 
-She saw the golden light.
+Она увидела золотой свет.
 
-It further extended into something that emits pure shine like a small Solus.
+Он всё нарастал, пока не превратился в чистое сияние, будто бы зажёгся маленький Солус.
 
-"……Human……"
+"……Человек……"
 
-There was a third swordsman.
+И явился третий мечник.
 
-Hair as if gold was springing. Armor also of gold. Pure white skirt. The eyes that watch the enemy unwavering is the sky blue.
+Волосы подобны золотому роднику. Броня тоже золотая. Чисто белая юбка. Глаза, неотрывно следящие за врагом, были небесно-голубыми.
 
-_...... I know._
+_...... Я знаю._
 
-"I ... ... this swordsman ...... No, a knight, I know her."
+"Я...... этот мечник...... Нет, рыцарь, я знаю её."
 
-Suteica whispered. Instantly, 『Me too』 is returned with Lauranei's voice.
+— прошептала Сутейка. Немедленно голос Лораней вернул 『И я』 ей в ответ.
 
-This golden knight was the figure drawn in a huge decorated portrait between the thrones on the fiftieth floor of the Central Cathedral. One of the strongest integrity knights in history, which is said to have disappeared in the middle of battle, raising a number of deeds in an ancient war of different worlds. Certainly, her name is ——.
+Фигура этого золотого рыцаря была нарисована на большущем украшенном портрете, висящем между тронами на пятидесятом этаже Центрального Собора. Один из сильнейших рыцарей целостности в истории, который, как известно, исчез в середине сражения, совершив немало подвигов в древней войне двух миров. Определённо, а имя её было ——.
 
-"... Alice ......-sama ...?"
+"...Алиса......-сама...?"
 
-The knight's right hand moved as if she could hear the voice.
+Правая рука рыцаря двинулась, словно она услышала своё имя.
 
-The long sword of the left hip, unsheathed in a smooth gesture.
+Мягким жестом она извлекла длинный меч из ножен, висевших на правом бедре.
 
-The blade of bright yellow tinge reflected the light of Solus and got even more terrible brilliance. The fragments of the cosmic beast lose control as if fearful, fleeing and running away.
+Клинок ярко-жёлтого оттенка отразил свет Солуса и засверкал ещё более ужасно. Частички космического зверя, словно напугавшись, потеряли всякий контроль и попытались сбежать.
 
-The knight holds a long sword in both hands in front of the body.
+Рыцарь обеими руками держала меч перед телом.
 
-She shouted out with a voice reminiscent of the wind blowing into space. The needle of the psychometer broke out with a small explosion sound.
+Голос, которым она выкрикнула, напомнил свежий ветер, пронёсшийся по космосу. Игла психометра с небольшим взрывом вырвалась из корпуса датчика.
 
-『_Release • Recollection!!_』
+『_Релиз Реколлекшн!!_』
 
-A sword extinguishes a strong flash.
+Меч испустил яркую вспышку.
 
-The blade is dissolved! Along with the metal sound, it breaks into countless strips.
+Клинок растворился! С металлическим звуком он разломился на бессчётные полосы.
 
-The knight moved the handle which remained on the right hand slowly.
+Рыцарь медленно повела оставшейся в правой руке рукоятью меча.
 
-The strips spread like a petal, like a petal dancing in the wind, ... ... and void.
+Полоски разделились и превратились в лепестки, танцующие на ветру,...... в пустоте.
 
-It turned into a golden meteor shower and flew at a stretch.
+Поток из золотых метеоритов обрушился вперёд.
 
-Each one of the small lights penetrates fragments of the escaping cosmic beast with a terrifying precision. The shadow of the shadow of darkness is burned down to golden glow and evaporates.
+Каждая из маленьких искорок с ужасающей точностью поражала фрагменты космического зверя, пытавшиеся сбежать. Тень того, что раньше было концентрированной тьмой, сгорела в золотом пламени и испарилась.
 
-"............ wow ... ..."
+"............ух ты......"
 
-Suteica could only mumble.
+— только и смогла пролепетать Сутейка.
 
-Even if you arrange all the dragons of the integrity machinery team and fire all the main guns at a time, this precision and power can not be hoped for.
+Даже если выстроить в ряд всех искусственных драконов войск целостности и одновременно выстрелить из главных орудий, можно было даже не надеяться на подобную точность и мощь.
 
-When the last one of the fragments of Abyssal • Horror, which was the worst fearful Underworld universe beast, was pierced by a golden arrow, an extraordinary scream came unprecedented.
+Когда последний из кусочков Эбисал Хоррора, бывшего самым страшным зверем во вселенной Подмирья, пронзило золотой стрелой, раздался ужасный крик, никем и никогда ранее не слышанный.
 
-Giiii-ii-i-i-i-i-o-o-o-o-o-o………….
+ГИИИИИ-ИИ-И-И-И-И-О-О-О-О-О-о-о-о-о-о-о………….
 
-Finally, the cosmic beast has completely disappeared.
+И, наконец, космический зверь полностью исчез.
+
+## Продолжение завтра
 
 Suteica just stunnedly watched the golden meteors gather at the hands of the knight and went back to a single long sword again.
 
