@@ -462,103 +462,99 @@ _...... Я знаю._
 
 И, наконец, космический зверь полностью исчез.
 
-## Продолжение завтра
+Сутейка оторопело смотрела, как золотые метеоры собрались у рук рыцаря и снова стали цельным клинком длинного меча.
 
-Suteica just stunnedly watched the golden meteors gather at the hands of the knight and went back to a single long sword again.
+_Но даже если золотой рыцарь — это древний рыцарь целостности Алиса-сама, кто же такие остальные двое?_
 
-Even if the golden knight is integrity knight Alice of old times, who are the remaining two?
+На обзорной панели, тем временем, вернувшая меч в ножны золотой рыцарь пролетела сквозь пространство и приблизилась к чёрному мечнику и жемчужной мечнице.
 
-In the video board, the golden knight who paid the sword in the sheath flies through the air and approaches the black sword fighter and the pearl swordsman.
+Перекинувшись парой фраз, троица вместе развернулась к наблюдателям. Их лица было не разглядеть. Но было очевидно, что на губах каждого из трёх играла улыбка.
 
-After having briefly exchanged something, three people turned around to watchers together. Their faces cannot be seen. But it’s clear that the three of them have a smile on their mouths.
+Мечник с двумя клинками вернул чёрный и белый длинные мечи в ножны на спине и легонько помахал рукой.
 
-Two-sword swordsman returned white and black long sword back and shook his right hand lightly.
+И в этот момент ——
 
-That moment——.
+Сильнейшая глубокая, очень глубокая эмоция, не испытанная ею никогда ранее, прошла сквозь спину Сутейки.
 
-A huge deep, very deep emotion unknown to her was passed through the inside of Suteica's back.
+Достаточно сильная, чтобы перехватило дыхание, достаточно, аж до боли.
 
-Hard to breath, enough to be painful.
+"А...... А......"
 
-"Ah ... ... ah ......"
+Перекрывая вырвавшийся вздох, в её ушах тихо раздался голос Лораней.
 
-It overlapped with the leaked sigh, and the voice of Lauranei sounded quietly in the ears.
+『Сутей. Я знаю. Я знаю этих людей.』
 
-"Sutey. I know. I know that people."
+"Да, Лора... Я тоже, я тоже знаю."
 
-"Yeah, Laura ... I, too, I do."
+Она кивнула, дважды, трижды.
 
-She nods twice, three times.
+_Это не знание, что хранится словно портрет меж тронов. Совсем не так.  
+Моё сердце. Кончики пальцев. Душа. Они помнят._
 
-It is not stored as knowledge like a portrait between thrones. Not so.
+Неожиданно её нос пощекотал аромат сладко-пряного мёда.
 
-My heart. My fingertips. My soul. They remember.
+Освежающий ветер, пронёсшийся лугом. Успокаивающее тепло солнца.
 
-Unexpectedly, the smell of sweet and savory honey pie tickles her nose.
+Далёкий, с еле слышным эхом, смех.
 
-The refreshing wind blowing across the meadow. The warmth of the sun which calms down.
+Сутейка, не отдавая себе отчёт, надела гермошлем и дёрнула за ручку в правой части кокпита.
 
-Distant, slightly echoing laughter.
+Сперва сквозь изоляцию вышел воздух. Листы брони, защищающей сидения в кокпите дракона развернулись, и над головой разлился звёздный океан. Второе судно также открыло доступ к сидениям.
 
-Suteica was casually putting on an airtight helmet and pulled the handle on the right side of the cockpit.
+Сутейка поднялась и собственными глазами увидела где-то в 30 метрах от кокпита трёх мечников, махавших руками.
 
-First, the insulation lets the air to come out. An armor board that protects the dragon's cockpit seats unfolds and the star ocean spreads above the head. The second aircraft also opens the boarding pass in the same way.
+Не может быть.
 
-Suteica stand up and in about 30 mel from the cockpit saw the three swordsmen who kept their hands waving with her own eyes.
+Ещё один —
 
-Impossible.
+Глаза Сутейки цвета осенних листьев определённо заметили появление дрожащей фигуры четвёртого мечника. Молодой человек, стоявший рядом с мечником с двумя клинками в чёрных одеждах, мягко улыбался. Контуры его фигуры сияли и колебались, словно восход солнца, и казалось, что она исчезнет, стоит отвести взгляд.
 
-One more person —.
+Молодой человек с льняными волосами медленно, но уверенно кивнул Сутейке.
 
-The eyes of autumn leaves of Suteica certainly caught the appearance of the fourth swordsman that appeared to be shaking. A young man standing right after the two-blade swordsman in the black clothing and smiling gently. Its appearance is shiny and it seems to disappear the moment you take your eyes off, swaying like a sunrise.
+Из обоих её глаз потекли слёзы.
 
-The young man with flax hair slowly nodded greatly towards Suteica.
+Тёплые капли стекали по лицу и останавливались у гермошлема.
 
-Tears flowed from both eyes of Suteica.
+Наконец, фигура молодого человека рассеялась, как будто растворилась в свете Солуса, появившегося из-за тени Кардины.
 
-Warm drops go down the face and is stopped by the airtight helmet.
+В этот миг юная механик целостности поняла истину.
 
-Eventually the figure of a young man died away as if melted in the light of Solus which appeared from the shade of Cardina.
+Этот — этот самый миг и был началом новой эры, как и предвещало пророчество Короля.
 
-At the same time, the young integrity mechanic understood the truth.
+Они — посланники, что возникли из прошлого и откроют дорогу в будущее.
 
-This — this very moment is the beginning of a new era as written in the prophecy of the Star King.
+Начиная с сегодня, мир начнёт меняться.
 
-They are messengers who emerge from the past and open the doors of the future.
+Откроются двери в новый мир, с шумом накатят волны новой эпохи.
 
-From this time, the world begins to change.
+Это не означает прихода рая. Скорее, в Подмирье приходили революционные изменения и невообразимо беспокойные времена.
 
-A door of another world opens, the tide of a new era loudly rushes up.
+Но в Сутейке не было страха.
 
-It doesn’t mean the coming of paradise. It is likely that a revolutionary change and a turbulent era that can not be imagined come to the Underworld.
+Потому что —
 
-However, there was no fear in Suteica.
+_Потому что сердце так болит.  
+Потому что трепещущая душа страстно желала этой встречи._
 
-Because —.
+Моргнув, Сутейка смахнула слёзы и посмотрела прямо вперёд.
 
-Because my heart hurts so much.
+Всё ещё стоя, она кончиками пальцев мягко нажала штурвал вперёд.
 
-Because the trembling soul was longing for this encounter.
-
-When she shake down tears with blinking, Suteica looked straight ahead.
-
-While standing up, with her fingertips gently pushed the control stick forward.
-
-The wounded dragon's wings born a faint blue shine.
+Крылья раненого дракона озарились слабым синим сиянием.
 
 ![Image](/Translate/Img/018_0425.jpg)
 
-Permanent heat element breathes, and a small thrust moves the spacecraft.
+Вечный термоэлемент дохнул, и небольшое ускорение двинуло судно вперёд.
 
-She glanced to the Lauranei nearby for a moment and got deep nod in response.
+Она взглянула на бывшую рядом Лораней и получила в ответ уверенный кивок.
 
-A girl born within the Underworld, the integrity mechanic Suteica Shtolienen moved the dragon slowly.
+Девочка, рождённая в Подмирье, механик целостности Сутейка Шутлинен, медленно двинула дракона вперёд.
 
-To the swordsmen who waved their hands to her, to strangers, to knights of the past.
+К мечникам махавшим ей руками, к странникам, к рыцарям прошлого.
 
-To the door of the next era.
+К двери в новую эпоху.
 
-To the future.
+К будущему.
 
 ## Примечания
 
