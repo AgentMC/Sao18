@@ -30,7 +30,7 @@ Suteica pushed the control pole slightly more and pulled up to the second aircra
 
 Looking upward, the sight line captures an elaborate relief fitted in the canopy of a narrow cockpit.
 
-A sword of black and white, aligned vertically. Surrounding it, flowers of blue roses and yellow-brawn osmanthus. It is the emblem of "Star King" now becoming a legend.
+A sword of black and white, aligned vertically. Surrounding it, flowers of blue roses and yellow-brawn olive. It is the emblem of "Star King" now becoming a legend.
 
 Thirty years have already passed, after the King and the Queen have left the royal palace Central Cathedral on the main star Cardina (//yes, it’s definitely “star” though they mean “planet” – and use term planet further/).
 
