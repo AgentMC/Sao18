@@ -4,6 +4,8 @@
 
 Warning: I don't know Japanese (only Chinese a little), so translation is done by cleaning up scans, sending them to OCR, then checking the recognized text, sending it to Google Translate. Only in certain cases I manually fix Google Translate issues. This makes English (if you can call it English at all) text below quite complicated to read. **Chapters 21-22 were almost not cleaned and are really hard to understand without 3GB intermediate recognition files I have locally. Chapters 23+ should be generally readable, though I didn't reformat sentences to be proper English either.** Feel free to enhance English if you wish (accepting pull requests). It is not my goal to have complete and precise English translation here. I use it basically as a placeholder for Russian translation.
 
+Portions of the text below are contributions by **@LShun**
+
 Overall progress: done, 09th July 2017.
 
 - [Initial illustrations](Translate/En/Ills_start.md)
