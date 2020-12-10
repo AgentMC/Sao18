@@ -2,31 +2,31 @@
 
 Star world calendar year 582
 
-"Blue Rose 73. Confirm withdrawal of the airspace and shift to the interstellar cruising speed"
+"Blue Rose 73. Confirming withdrawal of the airspace and shift to the interstellar cruising speed"
 
-The integrity mechanic Suteica Shtolienen removed the mouth from a voice transmitter, and pushed the control rod forward with the left hand.
+The integrity mechanic Stika Shtolienen removed the mouth from a voice transmitter, and pushed the control rod forward with the left hand.
 
 The bulk of the silver dragon vibrates. Both wings opened to the full, shine bright blue. It collects sparse resources of outer space from a wide range and sends it to the driving agency.
 
 Immediately, the permanent heat sealed in the heart of the engine raises a shrill roar and reacts, and a white flame is spit out from the main injection hole on both sides of the long tail. Gun, the feeling that the body is pressed against the cockpit. A smile unexpectedly emerges in intense acceleration which can not be tasted within the planet's atmosphere.
 
-『Blue Rose 74, consent』
+『Blue Rose 74, affirmative』
 
 There was a short response from the voice. Looking at the sub-picture board on the right side of the glance, the second aircraft follows obliquely behind while glowing the sparkle glow.
 
-It was her partner ordained at the same time as Suteica, operating the second aircraft, Lauranei Arabel, also integrity mechanic. Despite being childish usual, but she gets even more irresponsible while maneuvering a machine dragon.
+It was her partner ordained at the same time as Stika, operating the second aircraft, Laurannay Arabel, also integrity mechanic. Despite being childish usual, but she gets even more irresponsible while maneuvering a machine dragon.
 
-Especially, speed addiction is more than Suteica’s. Laughing lightly with a bitter smile.
+Especially, speed addiction is more than Stika’s. Laughing lightly with a bitter smile.
 
 "It's too fast, Laura"
 
-『It’s just you are slow, Sutey』
+『It’s just you are slow, Stee』
 
 _What only do you think?_
 
 The discipline of the underworld space army is absolute, but the eyes of a demon instructor also does not reach outside the atmosphere. Besides, it is a long journey of three hours to the destination, satellite star Admina. Somewhat error comes out naturally.
 
-Suteica pushed the control pole slightly more and pulled up to the second aircraft that was now lined up side by side, she laughed and deposited her body in the backrest.
+Stika pushed the control pole slightly more and pulled up to the second aircraft that was now lined up side by side, she laughed and deposited her body in the backrest.
 
 Looking upward, the sight line captures an elaborate relief fitted in the canopy of a narrow cockpit.
 
@@ -34,7 +34,7 @@ A sword of black and white, aligned vertically. Surrounding it, flowers of blue 
 
 Thirty years have already passed, after the King and the Queen have left the royal palace Central Cathedral on the main star Cardina (//yes, it’s definitely “star” though they mean “planet” – and use term planet further/).
 
-Suteica only fourteen years old and Lauranei still only 15 years old, have never been directly audited. Both of them, however, were brought up with plenty of funny stories from their mothers who were also warriors. And the mothers also conveyed many old stories from their mothers as well.
+Stika only fourteen years old and Laurannay still only 15 years old, have never been directly audited. Both of them, however, were brought up with plenty of funny stories from their mothers who were also warriors. And the mothers also conveyed many old stories from their mothers as well.
 
 The Shtolienen family and the Arabel family have been serving to the Star King as Konoe mechanics —  It seems that at that time it was called "knight" — during all the period of his reign that spanned two hundred years from the very beginning. (//Complex wordplay here and above. Old and new names both read “kishi”: knight (騎士) and “machine samurai” – mechanic (機士). Based on this, above there is a form “integrity mechanic” (整合機士) pronounced very similar to “integrity knight” (整合騎士). Finally the last form used is “Konoe mechanic” (近衛機士), where Konoe (近衛) is the name of special guards serving, protecting and reporting solely to Emperor in Japan - https://ja.wikipedia.org/wiki/近衛兵, i.e. Kirito’s personal battle mechanics squad. Riding mech dragons. /)
 
@@ -61,9 +61,9 @@ The king said this.
 _— Anyway, the gate of the different world "Real World" opens again.  
 — At that time, huge change will be brought to the two worlds._
 
-Although it is a story that Suteica can not actually feel about, it is said that an era will come when the surroundings of the underworld itself are uncertain after the gate of another world has opened. In addition to hoping for reconciliation and fraternity, if we not continue to refine our pride and power to penetrate our independence, humans, giants, goblins, orks and ogre human beings — the entire human family — will be hit by a tragedy that exceeds the "great world war" two hundred years ago.
+Although it is a story that Stika can not actually feel about, it is said that an era will come when the surroundings of the underworld itself are uncertain after the gate of another world has opened. In addition to hoping for reconciliation and fraternity, if we not continue to refine our pride and power to penetrate our independence, humans, giants, goblins, orks and ogre human beings — the entire human family — will be hit by a tragedy that exceeds the "great world war" two hundred years ago.
 
-But Suteica is not afraid.
+But Stika is not afraid.
 
 _Whatever world you go to, what era will come, let me fight wonderfully if there are wings of machine dragons.  
 Because I am a member of a glorious machine integrity squad with a tradition that goes continue from the era of Genesis far away._
@@ -94,13 +94,13 @@ In the past, it seems that the King, who was constantly in contact with God Beas
 
 Subsequent observations show that the cosmic animal keeps a constant speed and orbit around the two planets and as a measure of hardship all the machine dragons can avoid contact. It was decided to be permitted the interstellar navigation.
 
-Of course, Suteica and Lauranei have taken off the Cardina star, picking the date and time that the space beast is flying far behind the Admina stars.
+Of course, Stika and Laurannay have taken off the Cardina star, picking the date and time that the space beast is flying far behind the Admina stars.
 
 — Nevertheless.
 
 "Why ... ... it is too early to appear ..."
 
-Suteica got dizzy with the trembling hands on the control stick.
+Stika got dizzy with the trembling hands on the control stick.
 
 However, she immediately rebuilds her mind and shouts at the communication device with a sharp voice.
 
@@ -108,9 +108,9 @@ However, she immediately rebuilds her mind and shouts at the communication devic
 
 『Roger that!!』
 
-The voice of Lauranei who responds also has a tight resonance.
+The voice of Laurannay who responds also has a tight resonance.
 
-Suteica pulls the control rod daringly while turning the dragon to the left. The white flame gathers long from the attitude control injection hole, and the body is pressed against the seat with such a weight that it can not breath. The stars of the video board draw an arc and flow to the lower right.
+Stika pulls the control rod daringly while turning the dragon to the left. The white flame gathers long from the attitude control injection hole, and the body is pressed against the seat with such a weight that it can not breath. The stars of the video board draw an arc and flow to the lower right.
 
 When the turn was over, the main image board was full of the blue shine of the planet Cardina just taking off just a few dozen minutes ago. It seems that it will arrive if you reach out, it is actually far from hopeless.
 
@@ -122,7 +122,7 @@ In the rear vision of the sub-picture board, the appearance of the space beast s
 
 Among them, especially the tips of two long arms started to store vaguely violet light.
 
-『Sutey, he's set to attack!』
+『Stee, he's set to attack!』
 
 Respond instantly to the voice from the second aircraft.
 
@@ -134,7 +134,7 @@ Saying, tap one of the buttons on the control panel with your left hand. The lum
 
 When screaming, ten photons were released from the hips of the dragon into the universe through the transmission path inside the control lever clenching.
 
-Instantly they deform according to Suteica’s thoughts and make circular barrier.
+Instantly they deform according to Stika’s thoughts and make circular barrier.
 
 Immediately after.
 
@@ -146,13 +146,13 @@ In only 3 seconds, it touches the light barrier.
 
 "... .... ah!"
 
-Suteica screamed unexpectedly to the tremendous tremor that hit the dragon. At the same time, she heard a cry of Laurent Ney from the translation.
+Stika screamed unexpectedly to the tremendous tremor that hit the dragon. At the same time, she heard a cry of Laurent Ney from the translation.
 
-The two attack bullets easily shredded the barrier created by Suteica like a piece of paper and gleamed the back armor of the aircraft deeply.
+The two attack bullets easily shredded the barrier created by Stika like a piece of paper and gleamed the back armor of the aircraft deeply.
 
 Various instruments dye in red in an instant. An abnormality also occurs in the resource transmission path, and acceleration is dramatically slowed.
 
-Suteica certainly felt that Abyssal Horror, which is only an amorphous darkness, caught grime through the sub-picture board.
+Stika certainly felt that Abyssal Horror, which is only an amorphous darkness, caught grime through the sub-picture board.
 
 Looking at the side image, the second aircraft is destroyed one wing and it is slowing down speed much.
 
@@ -166,15 +166,15 @@ Fortunately, when she called out to shout, there was a response with a hoarse vo
 
 『Impossible ...... No, I do not like that! I can not abandon this child !!』
 
-Lauranei screaming.
+Laurannay screaming.
 
-Suteica could not say anything.
+Stika could not say anything.
 
 For a fighter, the dragon is not just a steel craft. It is the only buddy who made the heart through. Just like the flying dragon that the matching knights of old times were driving.
 
 "... ... Yes, that's right."
 
-Mumbling, Suteica gently enveloped the control stick with both hands.
+Mumbling, Stika gently enveloped the control stick with both hands.
 
 Breathe in heavily, dazzle with a smile.
 
@@ -184,7 +184,7 @@ Breathe in heavily, dazzle with a smile.
 
 The finishing communication, as usual, was only a single blunt word.
 
-With a smile, Suteica slowly pulled the control stick and caused the damaged beloved dragon to turn again by one hundred and eighty degrees once again. A huge cosmic beast approaching is fully displayed on the main image board. There are eight attack munitions already stored in the enormous tentacles wandering around.
+With a smile, Stika slowly pulled the control stick and caused the damaged beloved dragon to turn again by one hundred and eighty degrees once again. A huge cosmic beast approaching is fully displayed on the main image board. There are eight attack munitions already stored in the enormous tentacles wandering around.
 
 Oh...ooooooooo.......
 
@@ -192,7 +192,7 @@ Abyssal • Horror roared. Or maybe it laughed.
 
 _At least, I will be rewarded for death. A little longer will pass before it will hit this route next time._
 
-Prepared, Suteica pushed the red button on the control lever halfway.
+Prepared, Stika pushed the red button on the control lever halfway.
 
 The main gun equipped on the tip of the machine dragon opened a chisel. Originally, it generates the predisposition of the most effective attribute here, but against thin substance of Abyssal • Horror, even shots of anti-attribute can not deal any serious damage.
 
@@ -200,21 +200,21 @@ If so, casting the maneuvering sacred art, she was thinking that freezing attack
 
 The dragon's beak shines clear blue.
 
-When she glanced next to her, red light is leaking from the main gun of the second aircraft. It seems that Lauranei has chosen a thermal attack.
+When she glanced next to her, red light is leaking from the main gun of the second aircraft. It seems that Laurannay has chosen a thermal attack.
 
 The cosmic animal approaching already in just a thousand mels, spread eight tentacles ready for attack.
 
-Suteica breathed in a lot and tried to shout a shooting command.
+Stika breathed in a lot and tried to shout a shooting command.
 
 However——.
 
-『Wait ... ... Wait, Sutey! That is ... ...!』
+『Wait ... ... Wait, Stee! That is ... ...!』
 
-Lauranei's startled voice passed through the right ear.
+Laurannay's startled voice passed through the right ear.
 
 She thought, _what ever ... does she_, —— that moment.
 
-Suteica also saw it.
+Stika also saw it.
 
 A star comes down.
 
@@ -228,7 +228,7 @@ What looked like a star was the brightness of the light protective barrier in a 
 
 The shining stopped about two hundred mels ahead of the two machine dragons.
 
-It was almost simultaneous that Abyssal • Horror released eight light bullets with a huge roar. Before even get surprised with meeting a fresh-and-blood living human being in cryogenic outer space, Suteica cried.
+It was almost simultaneous that Abyssal • Horror released eight light bullets with a huge roar. Before even get surprised with meeting a fresh-and-blood living human being in cryogenic outer space, Stika cried.
 
 "What are you doing! Run away quickly!"
 
@@ -236,25 +236,25 @@ But the unknown wouldn’t move.
 
 While swinging the hem of a long coat, he stood still at one point in the space with his arms folded.
 
-Such thin protective walls, against the attack ball of Abyssal • Horror is not as good as thin paper. Suteica visually imagined that as soon as one of the attack bullets that roared and pulsed, touched human, blood be splat and meat get dispersed.
+Such thin protective walls, against the attack ball of Abyssal • Horror is not as good as thin paper. Stika visually imagined that as soon as one of the attack bullets that roared and pulsed, touched human, blood be splat and meat get dispersed.
 
 "Run away !!"
 
 『Flee it!!』
 
-Simultaneously with her, Lauranei screamed as well.
+Simultaneously with her, Laurannay screamed as well.
 
 Eight blue violet light bullets, one of which seems to be about 3 mel in diameter, fly along with a metal roaring. It stopped at void as if it crashed into an invisible wall, and all bounced back in random directions. The universe trembled.
 
-A myriad of stars reflected on both eyes of Suteica spread apart and made a ripple like the surface of the water and shook. Immediately afterwards, the shock-waves that arrived shook the bulk of the dragon. 
+A myriad of stars reflected on both eyes of Stika spread apart and made a ripple like the surface of the water and shook. Immediately afterwards, the shock-waves that arrived shook the bulk of the dragon. 
 
-Suteica who lost the word realized that a small instrument on the right end of the device board was able to jump to the top end in an instant.
+Stika who lost the word realized that a small instrument on the right end of the device board was able to jump to the top end in an instant.
 
 "Lie ... .... Ca ... ... It can’t be..."
 
-Suteica never saw that instruments called "psychometer", even about 20% of it’s max. 
+Stika never saw that instruments called "psychometer", even about 20% of it’s max. 
 
-In the ear, Lauranei's fearful voice echoes.
+In the ear, Laurannay's fearful voice echoes.
 
 『...... I can not believe it ...... Such a strength feeling... .... It’s like the entire universe is shaking...』
 
@@ -285,7 +285,7 @@ However, the mysterious swordsmen pointed white sword in the left hand with no f
 
 He shouted.
 
-Even through the empty outer space and the thick armor of the dragon, the voice of the swordsman sounded elegantly in the ears of Suteica.
+Even through the empty outer space and the thick armor of the dragon, the voice of the swordsman sounded elegantly in the ears of Stika.
 
 『_Release • Recollection!!_』
 
@@ -297,7 +297,7 @@ Though compared with the massive of the cosmic beast, it was thin like a thread,
 
 _However, such a thing is impossible. Abyssal • Horror is a creature adapted to the space which is a cryogenic environment. Such as cold air which is even lower than the temperature of outer space can not be produced._
 
-A whispering voice of Lauranei echoed from the ear blew away the stunk of Suteica.
+A whispering voice of Laurannay echoed from the ear blew away the stunk of Stika.
 
 『That is ... ... That technique is nothing else than "Complete Armament Control"... .... No, even "Memory Liberation Technique"... ...?』
 
@@ -323,7 +323,7 @@ The tremendously huge dark blade perhaps exceeding 50 mel in length hit three te
 
 At the moment both sides contacted, shock waves were generated that seemed to cause the space to distort again, and shaken the machine dragon. The blue-violet electric light crawls through the void, letting the image board dazzle.
 
-Already, Suteica could not speak because of surprise.
+Already, Stika could not speak because of surprise.
 
 _To activate secret mystery technique which should be used only for the seven highest-ranking matching machines twice at the same time? To take Abyssal • Horror's full power attack, to which Destroyer Dragon's crew can not compete against, by just one person?  
 I can not believe that such swordsmen exist, even among Centoria's founders._
@@ -332,7 +332,7 @@ But——.
 
 The truly amazing sight was waiting ahead.
 
-『Sutey!! One... ... One more person, a swordswoman!』
+『Stee!! One... ... One more person, a swordswoman!』
 
 When she hurriedly adverted the gaze, she saw a new human figure coming down from the same direction as the mysterious two-sword fighter appeared.
 
@@ -342,7 +342,7 @@ The female swordsman keeps the right hand all the way.
 
 She swung downward with supple movement.
 
-Suteica saw rainbow-colored aura appear in straight line in the jet-black universe and beat up beautifully. At the same time, it sounded like a mysterious choir of countless singers singing.
+Stika saw rainbow-colored aura appear in straight line in the jet-black universe and beat up beautifully. At the same time, it sounded like a mysterious choir of countless singers singing.
 
 La——.
 
@@ -370,7 +370,7 @@ It crushed the dark agglutinating beast with a blow.
 
 Oooooooo-o-o-o-o-o——.............
 
-The sharp screams of the supernatural creature overlapped with the explosive sound of the meteorite and resonated into the universe. The great release of resources from pure white through crimson to purple burned hard the eye of Suteica.
+The sharp screams of the supernatural creature overlapped with the explosive sound of the meteorite and resonated into the universe. The great release of resources from pure white through crimson to purple burned hard the eye of Stika.
 
 "... ... ... you defeated ... ... ... ... that monster ... ...?"
 
@@ -380,7 +380,7 @@ But——.
 
 『Ah ... ... still not ... ... yet!』
 
-A second pilot, who was just a little closer than Suteica, was quick to notice the phenomenon. The fragments of Abyssal • Horror, which she thought were all burned up by explosion, scattered in pieces, came together unexpectedly.
+A second pilot, who was just a little closer than Stika, was quick to notice the phenomenon. The fragments of Abyssal • Horror, which she thought were all burned up by explosion, scattered in pieces, came together unexpectedly.
 
 The chunk of darkness, just several tens of cens, which is too miniscule compared with the original bulky substance, escapes while irregularly rubbing like a flock of flies.
 
@@ -392,7 +392,7 @@ With this, the legend is only repeated.
 
 "No, don’t let it escape! Really destroy them all this time!!"
 
-Unexpectedly, Suteica cried.
+Unexpectedly, Stika cried.
 
 However, two swords swordsman and rapier wearer seem to be unable to move at once. It is unclear, maybe it exerted a huge blow to conscience.
 
@@ -404,7 +404,7 @@ A flock of flies was suddenly disarrayed.
 
 It gets scattered and shows irregular movements as if running away.
 
-Suteica took a breath and expanded a viewport by touching the main image board with her fingertips.
+Stika took a breath and expanded a viewport by touching the main image board with her fingertips.
 
 She saw the golden light.
 
@@ -420,7 +420,7 @@ _...... I know._
 
 "I ... ... this swordsman ...... No, a knight, I know her."
 
-Suteica whispered. Instantly, 『Me too』 is returned with Lauranei's voice.
+Stika whispered. Instantly, 『Me too』 is returned with Laurannay's voice.
 
 This golden knight was the figure drawn in a huge decorated portrait between the thrones on the fiftieth floor of the Central Cathedral. One of the strongest integrity knights in history, which is said to have disappeared in the middle of battle, raising a number of deeds in an ancient war of different worlds. Certainly, her name is ——.
 
@@ -452,7 +452,7 @@ Each one of the small lights penetrates fragments of the escaping cosmic beast w
 
 "............ wow ... ..."
 
-Suteica could only mumble.
+Stika could only mumble.
 
 Even if you arrange all the dragons of the integrity machinery team and fire all the main guns at a time, this precision and power can not be hoped for.
 
@@ -462,7 +462,7 @@ Giiii-ii-i-i-i-i-o-o-o-o-o-o………….
 
 Finally, the cosmic beast has completely disappeared.
 
-Suteica just stunnedly watched the golden meteors gather at the hands of the knight and went back to a single long sword again.
+Stika just stunnedly watched the golden meteors gather at the hands of the knight and went back to a single long sword again.
 
 Even if the golden knight is integrity knight Alice of old times, who are the remaining two?
 
@@ -474,15 +474,15 @@ Two-sword swordsman returned white and black long sword back and shook his right
 
 That moment——.
 
-A huge deep, very deep emotion unknown to her was passed through the inside of Suteica's back.
+A huge deep, very deep emotion unknown to her was passed through the inside of Stika's back.
 
 Hard to breath, enough to be painful.
 
 "Ah ... ... ah ......"
 
-It overlapped with the leaked sigh, and the voice of Lauranei sounded quietly in the ears.
+It overlapped with the leaked sigh, and the voice of Laurannay sounded quietly in the ears.
 
-"Sutey. I know. I know that people."
+"Stee. I know. I know that people."
 
 "Yeah, Laura ... I, too, I do."
 
@@ -498,21 +498,21 @@ The refreshing wind blowing across the meadow. The warmth of the sun which calms
 
 Distant, slightly echoing laughter.
 
-Suteica was casually putting on an airtight helmet and pulled the handle on the right side of the cockpit.
+Stika was casually putting on an airtight helmet and pulled the handle on the right side of the cockpit.
 
 First, the insulation lets the air to come out. An armor board that protects the dragon's cockpit seats unfolds and the star ocean spreads above the head. The second aircraft also opens the boarding pass in the same way.
 
-Suteica stand up and in about 30 mel from the cockpit saw the three swordsmen who kept their hands waving with her own eyes.
+Stika stand up and in about 30 mel from the cockpit saw the three swordsmen who kept their hands waving with her own eyes.
 
 Impossible.
 
 One more person —.
 
-The eyes of autumn leaves of Suteica certainly caught the appearance of the fourth swordsman that appeared to be shaking. A young man standing right after the two-blade swordsman in the black clothing and smiling gently. Its appearance is shiny and it seems to disappear the moment you take your eyes off, swaying like a sunrise.
+The eyes of autumn leaves of Stika certainly caught the appearance of the fourth swordsman that appeared to be shaking. A young man standing right after the two-blade swordsman in the black clothing and smiling gently. Its appearance is shiny and it seems to disappear the moment you take your eyes off, swaying like a sunrise.
 
-The young man with flax hair slowly nodded greatly towards Suteica.
+The young man with flax hair slowly nodded greatly towards Stika.
 
-Tears flowed from both eyes of Suteica.
+Tears flowed from both eyes of Stika.
 
 Warm drops go down the face and is stopped by the airtight helmet.
 
@@ -530,7 +530,7 @@ A door of another world opens, the tide of a new era loudly rushes up.
 
 It doesn’t mean the coming of paradise. It is likely that a revolutionary change and a turbulent era that can not be imagined come to the Underworld.
 
-However, there was no fear in Suteica.
+However, there was no fear in Stika.
 
 Because —.
 
@@ -538,7 +538,7 @@ Because my heart hurts so much.
 
 Because the trembling soul was longing for this encounter.
 
-When she shake down tears with blinking, Suteica looked straight ahead.
+When she shake down tears with blinking, Stika looked straight ahead.
 
 While standing up, with her fingertips gently pushed the control stick forward.
 
@@ -548,9 +548,9 @@ The wounded dragon's wings born a faint blue shine.
 
 Permanent heat element breathes, and a small thrust moves the spacecraft.
 
-She glanced to the Lauranei nearby for a moment and got deep nod in response.
+She glanced to the Laurannay nearby for a moment and got deep nod in response.
 
-A girl born within the Underworld, the integrity mechanic Suteica Shtolienen moved the dragon slowly.
+A girl born within the Underworld, the integrity mechanic Stika Shtolienen moved the dragon slowly.
 
 To the swordsmen who waved their hands to her, to strangers, to knights of the past.
 
