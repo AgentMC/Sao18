@@ -9,17 +9,17 @@ Portions of the text below are contributions by **@LShun**
 Overall progress: done, 09th July 2017.
 
 - [Initial illustrations](Translate/En/Ills_start.md)
-- [Chapter 21 (continued), Part 6](Translate/En/21-06.md)
-- [Chapter 21 (continued), Part 7](Translate/En/21-07.md)
-- [Chapter 21 (continued), Part 8](Translate/En/21-08.md)
-- [Chapter 22, Part 1](Translate/En/22-01.md) 
-- [Chapter 22, Part 2](Translate/En/22-02.md)
-- [Chapter 23, Part 1](Translate/En/23-01.md)
-- [Chapter 23, Part 2](Translate/En/23-02.md)
-- [Chapter 23, Part 3](Translate/En/23-03.md)
-- [Epilogue, Part 1](Translate/En/EP-01.md)
-- [Epilogue, Part 2](Translate/En/EP-02.md)
-- [Epilogue, Part 3](Translate/En/EP-03.md)
+- ~[Chapter 21 (continued), Part 6](Translate/En/21-06.md)~ [Proper translation (Defan752)](https://defan752.wordpress.com/sword-art-online-volume-18-chapter-21-continued/)
+- ~[Chapter 21 (continued), Part 7](Translate/En/21-07.md)~
+- ~[Chapter 21 (continued), Part 8](Translate/En/21-08.md)~
+- ~[Chapter 22, Part 1](Translate/En/22-01.md)~ [Proper translation (Defan752)](https://defan752.wordpress.com/sword-art-online-volume-18-chapter-22/)
+- ~[Chapter 22, Part 2](Translate/En/22-02.md)~ [Proper translation (Defan752)](https://defan752.wordpress.com/sword-art-online-volume-18-chapter-23/)
+- ~[Chapter 23, Part 1](Translate/En/23-01.md)~ 
+- ~[Chapter 23, Part 2](Translate/En/23-02.md)~
+- ~[Chapter 23, Part 3](Translate/En/23-03.md)~
+- ~[Epilogue, Part 1](Translate/En/EP-01.md)~ [Proper translation (Defan752)](https://defan752.wordpress.com/sword-art-online-volume-18-epilogue/)
+- ~[Epilogue, Part 2](Translate/En/EP-02.md)~
+- ~[Epilogue, Part 3](Translate/En/EP-03.md)~
 - [Epilogue, Part 4](Translate/En/EP-04.md)
 - [Epilogue, Part 5](Translate/En/EP-05.md)
 - [Epilogue, Part 6](Translate/En/EP-06.md)
